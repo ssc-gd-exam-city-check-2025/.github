@@ -1,4 +1,4 @@
-# ssc gd exam city 2025- Download SSC Gd Exam 2025 Admit Card and Check Your Exam City for 2025 
+# ssc gd exam city check 2025- Download SSC Gd Exam 2025 Admit Card and Check Your Exam City for 2025 
 
 The Secondary School Certificate (SSC) exams are a pivotal moment in every student's academic journey. As 2025 approaches, students across the country are preparing for this crucial set of examinations. One key piece of information that every student needs to know ahead of the exams is the location of their examination center, or "exam city." Knowing your exam city well in advance can help you plan better and avoid last-minute stress.
 
@@ -39,6 +39,7 @@ By staying organized and proactive, you can reduce the stress surrounding the ex
 # SSC Exam City Check 2025
 
 - SSC Exam City Check 2025
+- ssc gd exam city check 2025
 - SSC GD Exam City Check
 - SSC GD Exam City Check 2025
 - SSC GD Exam City Check 2025 Sarkari Result
